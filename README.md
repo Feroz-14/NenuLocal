@@ -1,3 +1,3 @@
 # Nenu Github Nerchukumtumnanu
  <br/>
- Author-----Feroz
+ Author-----FerozKhan
